@@ -1,1 +1,0 @@
-# prueba-logo-tsq1u4jp
